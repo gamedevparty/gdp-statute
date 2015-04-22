@@ -19,8 +19,8 @@ L’association est indépendante de toute tendance politique, confessionnelle o
 
 Le siège social est fixé au :
 
-114, rue Bugeaud\
-69006 Lyon
+9, place Raspail\
+69007 Lyon
 
 Il pourra être transféré par simple décision du Conseil d'Administration.
 
